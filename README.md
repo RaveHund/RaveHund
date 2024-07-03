@@ -1,5 +1,10 @@
+
+
  ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257941192650260551/jjba__kujo_jotaro_circles_border_by_whitenoize_dbueywn-fullview.png?ex=66863c87&is=6684eb07&hm=7abe33fd9d0468f16758aed5573d33db620ea91faeb41d9d6427afd1f321727e&)
-idk what to put here, enjoy my stamps.
+
+# Ryder
+
+
 
 ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257889984329814038/anti_usuk___stamp_by_anti_giripan_da4a1i1-fullview.png?ex=66860cd6&is=6684bb56&hm=97a0c70ffe22b047d6c41fb143166b8fe764c5d8a53824d5e53fec14e2833724&) ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257948633769443409/aph__anti_usuk_by_chokorettomilku_d750fg5-fullview.png?ex=66864375&is=6684f1f5&hm=1e9d165fa5eaa0702dff3cedbeda4aefa7f43a6a9d08ac792ce2aebc8abbe3bf&)  ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257926307518611526/d7hn94k-47bdbfa5-a431-4eb5-99a5-adb59d45b3cf.gif?ex=66862eaa&is=6684dd2a&hm=44f3c665f4921a5517df3eeac6b879f53812ba39376fe54c0a6fadbaae75f351&) ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257926564922789978/d81qr7v-684a483e-f6e6-4ad4-a15b-1f47ecf0fef9.png?ex=66862ee8&is=6684dd68&hm=705b753c1baa7dc327493b3af7b402280ab61a6461acf313fdcf8f756e36f53e&) ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257948646582784091/d7hex69-c1316c38-6f2f-40b7-a810-c541f91b3bea.gif?ex=66864378&is=6684f1f8&hm=f63835b233969300cb8323f6d51aff6beb89720de4a60c14b28b5e7fe8910f41&) ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257948939970281502/d81ra67-eeefb9ab-c691-486b-9af5-e18e441e10b7.png?ex=668643be&is=6684f23e&hm=5902cec012f4d9e86d2f4bcccfb1ea45fa076ffaa47cd8316d1d0da25afbfa8e&)
 
@@ -8,3 +13,6 @@ idk what to put here, enjoy my stamps.
 ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257929705412231178/d1ifsis-df623859-4888-4971-bbc3-524035323992.png?ex=668631d4&is=6684e054&hm=1de4dd6bc9ee9bb684ebd2589e753e2c53cc76b8b9f85e8b8bc77e606ef42242&) ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257939305977090098/tumblr_1c98443b9adc3fb02abc6655411f0fc0_3f24632f_100.png?ex=66863ac5&is=6684e945&hm=020a139b0eff11dee3c540485eeec9d193456a636a446c2e60e33d8ff6fc26f1&) ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257931936870170635/dbga1pm-b9b26a83-5c3b-4594-a180-f12935639382.png?ex=668633e8&is=6684e268&hm=233de5dc5c7a2dc089caf6f7220ecfc1fc30ff6c4d0001f76c3560dde350202d&) ![](https://cdn.discordapp.com/attachments/1012789720612360235/1257931937176223794/delav04-e965b738-8cd6-4e92-bf33-5823a837072e.png?ex=668633e9&is=6684e269&hm=37ce771950256b00f128601a352f308b4bd7caedf43dc930b4655e43b9919fd9&) ![](https://cdn.discordapp.com/attachments/1012789720612360235/1258093486754762792/tumblr_8061f0e271108de0b7f43fd380d8787c_44489bcf_100.png?ex=6686ca5d&is=668578dd&hm=727b9f52b52bfbfd4eb70951f1f42aa1965e700f0a076885c0130fd68b39b364&)
 
 ![](https://cdn.discordapp.com/attachments/1012789720612360235/1258092503727345684/tumblr_5bbcdc7b712f32858a1e3b3546adb3c7_df2883ce_100.png?ex=6686c973&is=668577f3&hm=917d5fe69a0c885d702dce6a517ca5e0611a6efd2481e6ed8819809501fb3522&)
+
+> [!CAUTION]
+> yo mama
