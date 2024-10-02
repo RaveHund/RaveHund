@@ -10,8 +10,8 @@
 
 ![](https://i.imghippo.com/files/0cFl71727888202.png) ![](https://i.imghippo.com/files/HouDl1727888250.png) ![](https://i.imghippo.com/files/bZr7t1727888428.png) ![](https://i.imghippo.com/files/9JIvN1727888478.gif) ![](https://i.imghippo.com/files/Hh56Q1727888721.gif) ![](https://i.imghippo.com/files/wYHy11727889156.png) ![](https://i.imghippo.com/files/Ncz1R1727889293.png)
 
-![](https://i.imghippo.com/files/e7zLL1721593103.png) ![](https://i.imghippo.com/files/DFroZ1721593246.png) ![](https://i.imghippo.com/files/Hf7IN1721593293.png) ![](https://i.imghippo.com/files/SPZ9m1721593599.png) ![](https://i.imghippo.com/files/Xtal51721593736.png) 
+![](https://i.imghippo.com/files/e7zLL1721593103.png) ![](https://i.imghippo.com/files/Zyuyn1727889403.png) ![](https://i.imghippo.com/files/DFroZ1721593246.png) ![](https://i.imghippo.com/files/Hf7IN1721593293.png) ![](https://i.imghippo.com/files/SPZ9m1721593599.png) ![](https://i.imghippo.com/files/Xtal51721593736.png) 
 
 
 
-![](https://cdn.discordapp.com/attachments/1012789720612360235/1258092503727345684/tumblr_5bbcdc7b712f32858a1e3b3546adb3c7_df2883ce_100.png?ex=6686c973&is=668577f3&hm=917d5fe69a0c885d702dce6a517ca5e0611a6efd2481e6ed8819809501fb3522&)
+
